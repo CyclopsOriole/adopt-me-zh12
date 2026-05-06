@@ -1,4 +1,4 @@
-
+rare adopt me Scripts is the best adopt me Script, featuring auto-farm and aimbot. Safe and powerful for all your needs.
 
 
 
